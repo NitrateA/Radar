@@ -1,1 +1,1 @@
-video of radar working is too large for me to upload here so I published file that radar records the data to. İf anyone want to see the videos they can connect me through this mail sergenzivana123@gmail.com.
+Video of radar working is too large for me to upload here so I published file that radar records the data to. İf anyone want to see the videos they can connect me through this mail sergenzivana123@gmail.com.
